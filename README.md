@@ -132,4 +132,4 @@ Feel free to reach out for suggestions, improvements, or collaboration!
 
 📧 Email: janavikhawalecse@gmail.com
 
-🔗 LinkedIn: Janhvi Khawale
+🔗 LinkedIn: JanhviKhawale
